@@ -12,4 +12,4 @@ Pedrohflorio208@outlook.com
 
 @florio._.019
 
-![descrição do GIF](link GIF do Tenor)
+![](https://media1.tenor.com/m/VL040gxE624AAAAC/quby-quby-chan.gif)
