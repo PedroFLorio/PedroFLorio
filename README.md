@@ -12,5 +12,4 @@ Pedrohflorio208@outlook.com
 
 @florio._.019
 
-![](https://media1.tenor.com/m/VL040gxE624AAAAC/quby-quby-chan.gif)
-![](https://tenor.com/pt-BR/view/waythes-animation-animated-gif-gif-discord-serveur-gif-6766305708152690106)
+![](https://media1.tenor.com/m/SuEMLFQtRGgAAAAd/xbox-xbox-controller.gif)
